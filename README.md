@@ -12,7 +12,7 @@ My favorite character is *Monkey D. Luffy* because he is brave and never gives u
 
 - The story is exciting.
 - The characters are funny and interesting.
-- It teaches lessons about friendship and teamwork.
+- It teaches lessons about friendship and teamwork..
 
 ### My Favorite Things
 
